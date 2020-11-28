@@ -1,0 +1,1 @@
+# dell-xps-9343-big-sur
